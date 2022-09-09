@@ -6,7 +6,7 @@
 ### <div align="center">Hi,</div>  
   
 
-- 🔭 Server owner on [Vice Roleplay](https://viceroleplay.id/)  
+- 🔭 Hmm..
   
 
 - 🌱 I’m currently learning anything I can learn  
